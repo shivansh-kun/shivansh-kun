@@ -1,6 +1,3 @@
 I’m Shivansh
 
-I don't expect anyone to read this but ....
-if you're here,
-
-Here's a cookie 🍪.
+I love my crush and Messi more than i've loved anyone outside my bloodline.
